@@ -1,7 +1,6 @@
 ### Hiya! ✌️
 
 ### Quick-fire | pewpew🔫<br/>
-# 💫 About Me:
 👨‍💻 Junior Front End Developer<br>🧑‍🍼 Father of two<br>🎨 Digital artist<br>👾 Gamer<br>🎸 Musician
 
 
